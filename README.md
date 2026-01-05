@@ -2,4 +2,5 @@
  i am really young but i don't care about how weird  you have chosen to  act around me but if you be too perculiar and i have just met you then, i will remove you from my list of friends.  my friends are a bit unhinged but its fine. i will not respond to people over 18+ or 18. my birth date is 12/6 and im not tellin my age because i don't trust anyone easily unless your very close. some times i can be clingy or when a different friend comes might not talk to them due to probably being with a different friend.! 
  i'm a multi-fandomer too some of my fandoms are not forsaken i just play the game, dandy's world, TRUD , dod, pressure and more but again i dunno which ones i am in. i am a young artist, but i do curse on online games like uh pony town. i try to keep thoughts of ending mysef out of my mind and not crying. so uh buh bye luv you germz and kim.! ^_^
 
-i hope you have entertained yourself reading this read me, i'll see you next time my brothers and sisters. HOLY CORYXKENSHIN REFERENCE.?! ok cuh be quiet
+i hope you have entertained yourself reading this read me.! ok cuh be quiet
+i don't like being left alone or excluded.
