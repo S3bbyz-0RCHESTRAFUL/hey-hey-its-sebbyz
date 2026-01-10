@@ -7,4 +7,5 @@ When my name in pony town says dniuf or dni and dont boop i actually mean it. so
 i hope you have entertained yourself reading this read me.! ok cuh be quiet
 i don't like being left alone or excluded. S0 BYE VYE  LOVE YOU GERMZ AD KIM.!!
 KIM IF YOU DONT FRIEND ME ON PONY TOWN IM GOING TO TWEAK HELP RME
+i really enjoy anime so if you come up to me as jabber i will tweak i love that guy sm i really like gachiakuta ok dont shame me,
 pls follow my git i have 8 followers still-
